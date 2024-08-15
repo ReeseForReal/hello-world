@@ -8,3 +8,5 @@ Day 3! Making good progress through my courses!
 Day 4! Can't wait for september to watch the Eagles play!
 
 Day 5! Watched alot of tutorials today and learned some new things!
+
+Day 6! Was a busy day today, so I didn't get to study as much as I would have liked:(
