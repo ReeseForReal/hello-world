@@ -13,3 +13,4 @@ Day 5! Watched alot of tutorials today and learned some new things!
 Day 6! Was a busy day today, so I didn't get to study as much as I would have liked:(
 
 Day 8! I forgot to log in yesterday, but im back on it today!
+
